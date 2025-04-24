@@ -1,2 +1,2 @@
 # Hack-Snap
-Brute-Force-SnapChat By D1MOD1877
+Brute-Force-SnapChat By https://t.me/hacksdark
